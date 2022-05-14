@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JiaoranWang
-- Niceeee meet you!
+- Niceeee meeting you!
 - Happy/carefree Gal and (Hopefully) Incoming Ph.D. in Mechanics
 - Reach me at jiaoranw@usc.edu
 
