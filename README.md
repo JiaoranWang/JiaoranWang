@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @JiaoranWang
 - Niceeee meeting you!
-- Happy/carefree Gal and (Hopefully) Incoming Ph.D. in Mechanics
-- Reach me at jiaoranw@usc.edu
+- Happy to open the private repo. under request
+- Reach me at AmandaWang0125@163.com
 
 <!---
 JiaoranWang/JiaoranWang is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
